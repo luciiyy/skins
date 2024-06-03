@@ -1,4 +1,4 @@
-skins that i use right now or used that i like
+skins that i use right now or used that i like.
 will be updated!
 
 # naoimi skins
