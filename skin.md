@@ -1,6 +1,1 @@
-skins that i use right now or used that i like.
-will be updated!
 
-# [rachxl](https://www.dropbox.com/scl/fi/sghjd5exsctp5pvbprlls/rachxl.osk) ![image](https://imgur.com/a/gameplay-preview-1-J4m6fDi)
-
-[rachx (ssrykat)](https://www.dropbox.com/scl/fi/kpfy108a28vaskuy6s3wq/rachx.osk) ![image](https://imgur.com/a/UpxMkD4)
