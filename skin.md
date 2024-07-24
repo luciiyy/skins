@@ -4,4 +4,4 @@ my skins last updated 07/23/24
        width="200"
        height="200"></a>
 
-[myuka♡](https://drive.google.com/file/d/1syNBgklXh3EH6eYkp6fKdUfuPwwwD-IC/view?usp=sharing) 4k only & silent hitsounds(?)
+[myuka♡](https://drive.google.com/file/d/1syNBgklXh3EH6eYkp6fKdUfuPwwwD-IC/view?usp=sharing) gameplay only. 4k only & silent hitsounds(?)
