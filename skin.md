@@ -4,4 +4,6 @@ my skins last updated 07/23/24
        width="200"
        height="200"></a>
 
-[myuka♡](https://drive.google.com/file/d/1syNBgklXh3EH6eYkp6fKdUfuPwwwD-IC/view?usp=sharing) gameplay only
+[myuka♡](https://drive.google.com/file/d/1syNBgklXh3EH6eYkp6fKdUfuPwwwD-IC/view?usp=sharing) 
+
+[scrap but i use it](https://drive.google.com/file/d/1TLyqYMfU5MmCv6tN-qzWPE2P7cGFfN6b/view?usp=sharing)
