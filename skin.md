@@ -6,9 +6,9 @@ my skins last updated 07/23/24, 10/19/24, 12/9/24
 
 [myuka♡](https://drive.google.com/file/d/1syNBgklXh3EH6eYkp6fKdUfuPwwwD-IC/view?usp=sharing) 
 
-[scrap but i use it](https://drive.google.com/file/d/1TLyqYMfU5MmCv6tN-qzWPE2P7cGFfN6b/view?usp=sharing)
+[scrap](https://drive.google.com/file/d/1TLyqYMfU5MmCv6tN-qzWPE2P7cGFfN6b/view?usp=sharing)
 
 [-mimi-](https://drive.google.com/file/d/1v9ZuPjeVwFHD0cBdoYewExTpc7fG7B14/view?usp=sharing)
 
-[leia edit --IceTea Orbs -- Sylveon Edit kita ver](https://drive.google.com/file/d/19vZdyUxJ3Ai04IflJUVuEJqTfQXUtqWe/view?usp=sharing)
+[leia edit --IceTea Orbs -- Sylveon Edit kita ver](https://drive.google.com/file/d/19vZdyUxJ3Ai04IflJUVuEJqTfQXUtqWe/view?usp=sharing) i use this
 
