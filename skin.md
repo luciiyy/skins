@@ -12,5 +12,5 @@ my skins last updated 07/23/24, 10/19/24, 12/9/24, 12/12/24
 
 [leia edit --IceTea Orbs -- Sylveon Edit kita ver](https://drive.google.com/file/d/19vZdyUxJ3Ai04IflJUVuEJqTfQXUtqWe/view?usp=sharing) i use this
 
-[skill boost fr](https://drive.google.com/file/d/1Gq2dLf-hyP7xlBqoItyAuo1Rd1RfrLgk/view?usp=sharing) i use this too
+[skill boost fr](https://drive.google.com/file/d/18H7iDtMMeBQhanDh3iDaN6BxnST9D8th/view?usp=sharing) i use this too
 
