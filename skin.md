@@ -10,7 +10,9 @@ my skins last updated 07/23/24, 10/19/24, 12/9/24, 12/12/24
 
 [-mimi-](https://drive.google.com/file/d/1v9ZuPjeVwFHD0cBdoYewExTpc7fG7B14/view?usp=sharing)
 
-[leia edit --IceTea Orbs -- Sylveon Edit kita ver](https://drive.google.com/file/d/19vZdyUxJ3Ai04IflJUVuEJqTfQXUtqWe/view?usp=sharing) i use this
+[leia edit --IceTea Orbs -- Sylveon Edit kita ver](https://drive.google.com/file/d/19vZdyUxJ3Ai04IflJUVuEJqTfQXUtqWe/view?usp=sharing)
 
-[skill boost fr](https://drive.google.com/file/d/18H7iDtMMeBQhanDh3iDaN6BxnST9D8th/view?usp=sharing) i use this too
+[skill boost fr](https://drive.google.com/file/d/18H7iDtMMeBQhanDh3iDaN6BxnST9D8th/view?usp=sharing)
+
+current skin i use is coming soon (maybe)
 
